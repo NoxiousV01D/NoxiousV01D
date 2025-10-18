@@ -11,20 +11,23 @@
   <img src="https://github.com/user-attachments/assets/6a2741ff-28ad-44bc-b48f-9ca659d6ab1c" height="200" alt="Art and pngs not mine">
 <p>
 <br>
+
 Bisexual now. Me and my gf(I hate her.) has a pretty stupid and anger trigerring reason.
 <br>
 <br>             
-
+<p>
 
 
 <br>
   call me
-  <img src="https://github.com/user-attachments/assets/b19b12d6-4b65-40d5-b421-f4e11b314999" height="90">
+  
  
   ***SPACER / Ms. Tripmine!***
-<p align=center>
-<br>
- <br>
+
+<br><p align=center>
+ <img src="https://github.com/user-attachments/assets/b19b12d6-4b65-40d5-b421-f4e11b314999" height="900">
+ <p>
+ <br><p align=center>
    <img src="https://github.com/user-attachments/assets/92254d32-38bb-46dd-822a-714ce1523144" height="5000"> 
 
 <br>
