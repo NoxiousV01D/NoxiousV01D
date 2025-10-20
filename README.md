@@ -12,7 +12,7 @@
 <p>
 <br>
 
-Bisexual now. Me and my gf(I hate her.) has a pretty stupid and anger trigerring reason.
+Ough, I love Subkit..
 <br>
 <br>             
 <p>
